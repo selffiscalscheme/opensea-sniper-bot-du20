@@ -1,4 +1,4 @@
-# 
+# ultimate NFT Rarity Sniper for opensea sniper bot | collection-scanning & bulk-purchases is the best opensea sniper bot, featuring collection-scanning and bulk-purchases. Fast,
 
 
 
